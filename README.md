@@ -1,6 +1,6 @@
 ![Hello 👋](https://cdn.discordapp.com/attachments/775526710279012363/775534207602393098/bec44e8218cf714d8b36592dfa34850a.gif)
 
-Hi
+Hi, I just want to say that you're cute.
 
 Nothing.
 
