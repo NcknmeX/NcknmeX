@@ -1,5 +1,5 @@
 ### Hi, I just want to say that you're so cute. 👋
-####Our Discord:
+#### Our Discord:
 [Antichix](https://discord.gg/NmFcvCs)
 [KK](https://discord.gg/MT2996y)
 <br><br><br>
